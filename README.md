@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DiamondDump
+- 👀 I’m interested in Drugs
+- 🌱 I’m currently learning Art
+- 💞️ I’m looking to collaborate on Fnf
+- 📫 How to reach me Discord: Diamond's  Dump#6312
